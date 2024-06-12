@@ -1,1 +1,0 @@
-They keep deleting tutorial videos bruh, it's dead. 
